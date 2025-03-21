@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **sql, html, css, c & c++**
 
-- 📫 How to reach me **abhishekmukhiya56321@gmail.com**
+- 📫 How to reach me **abhishekmukhiya9822@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
